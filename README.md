@@ -1,1 +1,1 @@
-2026-07-01-20:15
+Pokemon Card Game Pocket Power Ranking
