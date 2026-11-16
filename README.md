@@ -1,1 +1,1 @@
-Pokemon Card Game Pocket Power Ranking
+PTCGPPower Ranking
