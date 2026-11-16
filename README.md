@@ -1,1 +1,1 @@
-PTCGPPower Ranking
+PTCGP Power Ranking
